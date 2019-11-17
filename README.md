@@ -37,5 +37,5 @@ All IN One Tool : exploiters/checker/grabbers/senders/scanners
 ```
 **Contact**
 <br>
-<a href="https://instagram.com/mekanık_mech">İnstagram</a><br>
+<a href="https://instagram.com/mekanik_mech">İnstagram</a><br>
 
